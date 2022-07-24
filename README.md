@@ -32,3 +32,6 @@ Simplicity, excellence, integrity and ingenuity
 - Transparency
 - Research and Development
 - Trustworthiness
+
+## Get in Touch
+https://linktr.ee/fashorum
